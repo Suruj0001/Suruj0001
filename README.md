@@ -2,7 +2,7 @@
 
 I am an MLOPS Enginer 
 
-A Passionate Blockchain Developer 
+A  Decentralized Solutions Engineer 
 
 I mostly worked with Indie Funded Ventures , Bootstrap Startups 
 
