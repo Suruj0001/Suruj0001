@@ -9,3 +9,5 @@ I mostly worked with Indie Ventures , Bootstrap Startups 🔐📡
 
 
 
+
+
