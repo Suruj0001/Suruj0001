@@ -1,6 +1,6 @@
 ## Hi there Iam Suruj Kalita 👋
 
-I am an MLOPS Enginer 🏗️💻 
+I am an MLOps Enginer 🏗️💻 
 
 A  Decentralized Solutions Engineer 🌐🔧 
 
